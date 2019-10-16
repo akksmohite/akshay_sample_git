@@ -1,1 +1,1 @@
-akshay is man
+akshay is man of taichi
